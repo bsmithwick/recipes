@@ -33,7 +33,7 @@ It also uses a surprisingly large number of really hot peppers without the finis
 * Half of one of those little cans of tomato paste (you'll just throw other half away.  Sorry.)
 * 2-3 habanero peppers, stems removed and finely chopped
 * 1-2 serrano peppers, stems removed finely chopped
-* 2 cups or so of beef stock
+* 3-4 cups of beef stock
 * 1-2 16 oz cans of white beans
 * 1/3 cup brown sugar
 * 1/2 tablespoon ground cumin
