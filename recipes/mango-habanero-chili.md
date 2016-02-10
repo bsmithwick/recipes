@@ -52,5 +52,5 @@ It also uses a surprisingly large number of really hot peppers without the finis
 1. Toss in a can or two of beans, depending on your preference for legumes.
 1. Stir in the green chiles, cumin, and brown sugar.
 1. Cook for 30 minutes or so, then taste and adjust the seasonings.
-1. If you want more heat, add the remaining habanero and serrano peppers.  The earlier you add the peppers, the more their heat will cook off, so save some peppers for the end if you want them to be more potent.  Add in the cayenne and/or ghost peppers as your palate will allow.
+1. If you want more heat, add the remaining habanero and serrano peppers.  Add in the cayenne and/or ghost peppers as your palate will allow.
 1. Cook for another hour or so.  Somewhere near the end, add in the chopped cilantro.
